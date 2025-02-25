@@ -1,3 +1,5 @@
 “Having more can make a person happier” Do you agree?
 
 Are people becoming more and more materialistic? Does having more make people happier? These controversial questions are hotly debated in the 21st century. The increasing prevalence of materialism has been unprecedented due to growing competitiveness and craving among people. However, I firmly posit that having more cannot ultimately make a person happier.
+
+First and foremost, possessing more things won’t lead to ultimate happiness and fulfilment in life because of human’s unsatiable pursuit of material possessions. The word “more” conveys that there is no upper limit of people’s desires, as they constantly yearn for additional wealth, status, or belongings. For instance, I had been yearning for an iPad, but after I finally had one, the excitement didn’t last as long as I anticipated. I soon realized that a MacBook would be more helpful for my study, and I started longing for a MacBook instead. Therefore, as people’s desires are never completely satisfied by having more possessions, this endless cycle of wanting more hinders them from experiencing lasting happiness.
