@@ -6,3 +6,7 @@ First and foremost, the general overfocus on learning can potentially lead to ne
 For instance, if one put all his attention on learning and doesn’t spend any time with his friends and family, he
 
 Some critics may argue that learning can facilitate personal development. Reading books provides opportunities for people to broaden their horizons and improve their critical thinking skills, allowing them to navigate and understand both the reality and their inner self. However, although the benefits of learning are undeniable, what this argument overlooks there are multiple ways to achieve personal growth, such as contributing to society or interacting with friends. Hence, it is not necessary to learn as much as possible in life to live meaningfully.
+
+Additionally, the () pursuit of knowledge may lead to stress and burnout, therefore negatively affect one’s life quality. Knowledge is infinite and is impossible to be finished. The over focus of acquiring knowledge, “Learning as much as possible”, can potentially lead to one’s discontentment towards one’s current state, since “the only thing I know is that there is nothing I know.”
+For instance, in the education path, students will be more and more stressed not only because of the increase in the amount of homework, but also because while their knowledge increase, there more things that they didn’t know.
+Therefore,
