@@ -10,3 +10,6 @@ Some critics may argue that learning can facilitate personal development. Readin
 Additionally, the () pursuit of knowledge may lead to stress and burnout, therefore negatively affect one’s life quality. Knowledge is infinite and is impossible to be finished. The over focus of acquiring knowledge, “Learning as much as possible”, can potentially lead to one’s discontentment towards one’s current state, since “the only thing I know is that there is nothing I know.”
 For instance, in the education path, students will be more and more stressed not only because of the increase in the amount of homework, but also because while their knowledge increase, there more things that they didn’t know.
 Therefore,
+
+The opposing view claims that learning can bring a more enriching and enjoyable life by instilling a sense of purpose. + eplanatino
+Although part of this claim is valid, acquiring vast knowledge is not the mere way to achieve fulfilment and contentment in life. Helping people in need, fostering stable relationships, or achieving professional success also contribute to a meaningful and life. Thus, learning as much as possible is not a prerequisite of living in happiness.
