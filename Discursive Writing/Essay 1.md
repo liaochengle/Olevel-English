@@ -1,3 +1,5 @@
 Discuss the delights and frustrations of teenagers in modern world. 
 
 The teenage years are often described as a time of self-discovery, excitement, and growth. In today’s world, teenagers have access to countless opportunities that allow them to explore their interests, develop their skills, and form their identities. However, along with these privileges come various challenges that make adolescence a complex and sometimes overwhelming experience. While teenagers enjoy the freedom to pursue their passions with minimal responsibilities, they also struggle with the pressure of meeting expectations set by parents, teachers, and society. This essay will explore both the delights and frustrations that shape the teenage experience in the modern world.
+
+One of the greatest joys of being a teenager in today’s world is the ability to explore new interests and hobbies without the burdens of full adult responsibility. Unlike adults who must focus on financial stability and long-term commitments, teenagers often have the luxury of trying different activities, from sports and arts to coding and entrepreneurship, without significant consequences.
