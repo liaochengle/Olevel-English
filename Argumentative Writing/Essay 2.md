@@ -1,6 +1,6 @@
 People should always tell the truth.’ Do you think there are any situations in which this might not be the best thing to do? Explain your views. (2017)
  
-“In law a man is guilty when he violates the rights of others. In ethics he is guilty if he only thinks of doing so.” This quote from Immanuel Kant highlights his unwavering stance on the moral imperative of truth-telling. Aligned with Kant’s categorial imperative, I firmly believe that people should always tell the truth, without exception. In my pers, lying cannot be justified by any potential benefits or seemingly benevolent intentions.
+“In law a man is guilty when he violates the rights of others. In ethics he is guilty if he only thinks of doing so.” This quote from Immanuel Kant highlights his unwavering stance on the moral imperative of truth-telling. Aligned with Kant’s categorial imperative, I firmly believe that people should always tell the truth, without exception. In my perspe, lying cannot be justified by any potential benefits or seemingly benevolent intentions.
 
 Telling the truth, even in difficult circumstances, safeguards human dignity, nurtures trust and reinforces the very foundations upon which ethical communities stand. Consequently, one might wonder whether there are any situations—perhaps those involving safety, privacy, or compassion—where withholding or bending the truth might be permissible. Despite these questions, the Kantian principle remains unyielding: it is our duty to respect truthfulness as a moral law, no matter the circumstances.
 
