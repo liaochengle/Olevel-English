@@ -1,4 +1,4 @@
-People should always tell the truth.’  you think there are any situations in which this might not be the best thing to do? Explain your views. (2017)
+People should always tell the truth.’ D  you think there are any situations in which this might not be the best thing to do? Explain your views. (2017)
  
 “In law a man is guilty when he violates the rights of others. In ethics he is guilty if he only thinks of doing so.” This quote from Immanuel Kant highlights his unwavering stance on the moral imperative of truth-telling. Aligned with Kant’s categorial imperative, I firmly believe that people should always tell the truth, without exception. In my perspectiv, lying cannot be justified by any potential benefits or seemingly benevolent intentions.
 
