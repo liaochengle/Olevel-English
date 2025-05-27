@@ -1,4 +1,4 @@
-Which modern invention is essential for you and your family and which one could you and your family live without? Explain your views. (2018)
+Which modern invention is essential for you and your family and which one could you and your family live without? Explain your views. 
 
 “The advance of technology is based on making it fit in so that you don’t really even notice it, so it’s part of everyday life.”, this quote from Bill Gates underscores the seamless integration of modern inventions into our day-to-day routines. From smartphones that keep us constantly connected, to household appliances that make chores more efficient, technology has become almost invisible, yet utterly indispensable. However, not every invention is equally crucial; while some devices ensure our family’s comfort and convenience, others may be more of a luxury than a necessity
  
